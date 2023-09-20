@@ -12,7 +12,7 @@
 - 🌱 Mi principal objetivo es vivir de la programación lograr grandes innovaciones para la sociedad.  
   
 
-- ❓No dudes en contactarme podemos formar un gran equipo!!!  
+- ❓No dudes en contactarme podemos formar un gran equipo!!! Nuevamente te comparto mi correo g.javier.jgl@gmail.com
   
 
 - ⚡ Acutalmente soy TA en Henry, tengo proyectos de programación con un grupo de amigos surgidos en Henry y además trabajo en una concesionaria de autos.  
